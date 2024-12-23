@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @dellhicklee
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...52
+- 🌱 I’m currenthdd
 - 💞️ I’m looking to collaborate on ...w
 - 📫 How to reach me ...h53455
 - 😄 Pronouns: ...
